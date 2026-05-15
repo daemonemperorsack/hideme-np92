@@ -1,4 +1,4 @@
-
+Enhance your Hide.me experience with advanced Hide.me Client | server-switching + multi-device-support, the #1 client. Includes server-switching and multi-device-support for a
 
 
 
